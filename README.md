@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Kusumrani27
 - 🌱 Make My Website Pty Ltd
+- Hisar, Haryana 
 - 😄 Pronouns: kusu
 - ⚡ Fun fact: 🎵  🏀 
 
